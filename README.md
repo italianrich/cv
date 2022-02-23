@@ -93,5 +93,3 @@ Hardware, Software and Network support for French, Italian and UK customers.
 **Interests :**
 
 Web 3, blockchain, linux, crypto, NFTs, squash, swimming, football, skiing, sailing, classic and electric guitar, scuba diving, salsa, golf.
-
-*CV Richard JONES – Project Manager		2/2*
